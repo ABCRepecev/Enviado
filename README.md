@@ -1,2 +1,0 @@
-# Papeleria
-Papelería Repecev
